@@ -1,1 +1,1 @@
-
+roblox, twitch, squid game, kpop, lolofd, genshin, mlp, bsd, jujutsu kaisen, blue lock, mouthwashing, homicipher, undertale, bluey, minecraftfd, ranfren, 13 card murder drones and other similar shit. dni there may be exceptions here, but this does not apply to my friends/followers/srry:(
