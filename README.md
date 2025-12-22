@@ -1,1 +1,1 @@
-wip
+homophobes, people under 13, judging people by their covers, their interests, and pairings, arguing about a character's gender, dox/matchmaker, stalk people with bad intentions, zoophiles, pedophile, racists and all that stuff ^_^
